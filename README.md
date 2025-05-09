@@ -1,6 +1,6 @@
 ## Hi Call Her Dr.Suad Algarni or Dr.Susie 👋
 # 💫 About Me:
-Who is she?<br>🔭 I’m currently working on level up data science skills<br>👯 I’m looking to collaborate using data science tools to publish scientific research papers.<br>🤝 I’m looking for help with finding a job position inside or/and outside the KSA.<br>🌱 I’m currently learning, practicing and using data science tools to transfer and shape my database platform skills into the technology world. #FreeLearingchannel @Riffmonas<br>💬 Ask me about #HER #PubMeD #LinkedIn <br>⚡ Fun fact Love #Workout #GYM #Music #Movies #Books #Travel  <br>
+Who is she?<br>🔭 I’m currently working on level up data science skills<br>👯 I’m looking to collaborate using data science tools to publish scientific research papers.<br>🤝 I’m looking for help with finding a job position inside or/and outside the KSA.<br>🌱 I’m currently learning, practicing and using data science tools to transfer and shape my database platform skills into the technology world. #FreeLearingchannel @Riffmonas<br>💬 Ask me about #HER #PubMeD #LinkedIn ourwebsite/[(https://virulence.fda.gov/)] <br>⚡ Fun fact Love #Workout #GYM #Music #Movies #Books #Travel  <br>
 
 
 ## 🌐 Socials:
